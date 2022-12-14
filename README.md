@@ -1,2 +1,0 @@
-# proyectpost
-teamwork
